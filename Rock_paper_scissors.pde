@@ -1,0 +1,3 @@
+//sten saks papir
+
+//setehaha
